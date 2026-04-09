@@ -31,6 +31,7 @@ I live in texas so this is very bad for me and my mental health because theres n
 
 i am currently also struggling to find motivation to do my schoolwork and hobbies. this causes most of my coding projects to be incomplete and overall lower quality, this also has an effect on my schoolwork but its less.  i really don't know the exact cause nor do i really care i just thought it was kinda important to add to here.
 
+I have been having some auditory and visual hallucinations recently and no one believes me. Not much to put here. I heard my school bell ring multiple times throughout the last couple of days without it actually ringing, it sounds 1:1 just a bit quieter. I've also been seeing things that weren't there. I really dont have an exact example at the moment but uh yh.
 ### Final words
 
 I know I have used the word "hate" a lot here but theres no other words to describe it, everything in my life is quite literally falling apart and i just have to stand by and watch. using the word "hate" makes it much easier to convey my point even though i dislike using the word in general.
