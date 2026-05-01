@@ -28,7 +28,7 @@ i despise the current state of the [US] government. the government is complete s
 I live in texas so this is very bad for me and my mental health because theres no one to talk about it, this becomes very apparent during school and everything else.
 
 ### Other stuff
-I am grounded atm (4/27) till 4/30 cause I committed some crimes at school and I'm also in ISS (in school suspension). there's not really much to add other than I am super bored and haven't really been able to talk to any of my friends online or at school because ISS isolated me and I have no PC since my dad took it till my school punishments end. 
+I am grounded atm (4/27) till 4/30 cause I committed some crimes at school and I'm also in ISS (in school suspension). there's not really much to add other than I am super bored and haven't really been able to talk to any of my friends online or at school because ISS isolated me and I have no PC since my dad took it till my school punishments end. (4/30) Uh my dad lied. I have still not gotten any of my stuff back an he told me he does not know when I'm going to get it back... Idk what else to say I'm just pissed.
 
 i am currently also struggling to find motivation to do my schoolwork and hobbies. this causes most of my coding projects to be incomplete and overall lower quality, this also has an effect on my schoolwork but its less.  i really don't know the exact cause nor do i really care i just thought it was kinda important to add to here.
 
